@@ -35,7 +35,7 @@
  
 
 ## Demo Video Link
-*(YouTube public/unlisted link — Google Drive or other uploads are not allowed)*
+*https://youtube.com/shorts/bj7LcO5ckNI*
 
 ---
 
